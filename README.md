@@ -1,4 +1,4 @@
-## Welcome to my proile 🥳
+## Welcome to my profile 🥳
 
 
 - my name is kauã yataco
